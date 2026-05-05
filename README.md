@@ -8,5 +8,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about my techs and hobbies
 - 📫 How to reach me: email: isaiasruizt@gmail.com Linkedin: https://www.linkedin.com/in/isaias-ruiz-33b710239/
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Despite my profile, I just play a few pokemon games
 
