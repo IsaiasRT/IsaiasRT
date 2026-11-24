@@ -2,7 +2,7 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working as an intern in MLH Fellowship
+- 🔭 I worked as an intern in MLH Fellowship
 - 🌱 I’m currently learning how to work in collaborative projects
 - 🤔 I’m looking for help with any programming enviroment
 - 💬 Ask me about my techs and hobbies
